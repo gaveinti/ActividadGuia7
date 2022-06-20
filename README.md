@@ -1,1 +1,1 @@
-# ActividadGuia7
+Guillermo Veintimilla
